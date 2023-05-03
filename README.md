@@ -1,1 +1,0 @@
-# Tinkoff_Contest-Winter-2022
